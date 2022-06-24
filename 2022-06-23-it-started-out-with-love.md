@@ -37,16 +37,19 @@ to keep changing, evolving, and growing.
 
 It transforms and builds and transcends  
 and invites us all along for the ride on each and every bend.  
-What the journey will become
-whose to say where it will go or when it will end.
+What the journey will become   
+whose to say where it will go or when it will end.  
 
-And the destination's often taken 
-as the only thing that matters
-when the truth is that the ride 
-is where the life is if we can just 
-accept it as a gift to experience and release
-and maybe drop some seeds along the way 
-for whatever adventure will then begin again.
+And the destination's often taken  
+as the only thing that matters  
+when the truth is that the ride  
+is where the life is if we can just   
+accept it as a gift to experience and release  
+and maybe drop some seeds along the way  
+for whatever adventure will then begin again.  
 
-The questions is will you be awake enough to see it  
-and if so not just observe but take a step and live and be it?  
+The questions is will you be  
+awake enough to see it?  
+And if so not just observe  
+but take a step and live in it  
+and embody it and be it?  
