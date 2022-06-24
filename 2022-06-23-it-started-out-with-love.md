@@ -3,7 +3,8 @@
 As it so often does, it started out with love.  
 A spark, an idea, a creative and generative force.  
 A way where there is no way.  
-In the midst of death and decay, new life springing forth.  
+In the midst of death and decay, 
+new life springing forth.  
 
 The waves of life come crashing in and out like the tide.  
 Sometimes it's too much.  
