@@ -22,7 +22,7 @@ Love springs forth in moments undetected.
 The unplanned and spontaneous actions  
 which are our fundamental hopes and dreams projected  
 into memories and lived experiences collected  
-that serve to remind us that we all souls connected.  
+that serve to remind us that we all are souls connected.  
 
 This unconditional love it leads to unity you see.  
 It's not just you and me, it's always all about we.  
