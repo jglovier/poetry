@@ -1,14 +1,16 @@
 # It Started Out With Love
 
 As it so often does, it started out with love.  
-A spark, an idea, a creative and generative force.  
-A way where there is no way.  
-In the midst of death and decay, 
+A spark, an idea, a generative force.  
+A way where there appeared no way.  
+In the midst of what's dying and ending,  
 new life springing forth.  
 
-The waves of life come crashing in and out like the tide.  
-Sometimes it's too much.  
-Like drowning or spinning or being taken for a ride.  
+When the waves of life come crashing  
+in and out just like the tide  
+sometimes it's all too much!  
+...like drowning or spinning  
+or being taken on an ininvited ride.  
 
 But then other times the ride is fun!  
 Like surfing, or skating,  
@@ -44,9 +46,9 @@ And the destination's often taken
 as the only thing that matters  
 when the truth is that the ride  
 is where the life is if we can just   
-accept it as a gift to experience and release  
-and maybe drop some seeds along the way  
-for whatever adventure will then begin again.  
+accept it as a gift to experience now and then    
+and maybe plant some seeds for  
+whatever next adventure will then begin again.  
 
 The questions is will you be  
 awake enough to see it?  
