@@ -54,19 +54,21 @@ A release from expectation
 and its constant scrutiny.  
 
 It may not be as satisfying  
-as the fulfillment of expectations,  
-but there is healing and new life  
-in the freedom that it contains  
-when I can see it as a release of   
-something with no life outside of my imagination,  
-and not as the final word in my story.  
+as a fulfillment of expectations,  
+but there is healing and freedom  
+in the space of disappointment.  
+
+When I can see it simply as  
+the end of something with no life  
+outside of my imagination.  
+And not as the final word in my story,  
+but a marker of a new chapter.  
 
 And then I take a deep breath,  
 pause, rest, reflect, and reset.  
-Update my internal understanding  
-to more closely match reality.  
-
-And begin again to soar  
+Update my internal model  
+to better match reality,  
+and begin again to soar  
 as high as I dare to fly.  
 
 Some days life just says,  
