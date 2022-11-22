@@ -3,10 +3,12 @@
 How do you handle  
 all of the expectations of life,  
 and of the world?  
+
 How do handle  
 your own expectations?  
 
-In some ways, expectations and anticipation  
+In some ways,  
+expectations and anticipation  
 bring great joy and fun  
 into the day after day under the sun.  
 
