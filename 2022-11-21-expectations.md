@@ -39,7 +39,7 @@ The people, situations, and environments
 that deeply shape our sense of self  
 can be both a ligament that holds us together  
 and bonds us to others,  
-and also a chain that imprisons us 
+and also a chain that imprisons us  
 in the will and desire of others.  
 
 Can we allow and accept disappiontment?  
