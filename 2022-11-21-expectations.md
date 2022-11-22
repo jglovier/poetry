@@ -32,8 +32,8 @@ Somtimes even violently.
 
 And what of the expectations  
 that we place on ourselves?  
-Or that received from 
-those we defined us?  
+Or that we receive from 
+those we define us?  
 
 The people, situations, and environments  
 that deeply shape our sense of self  
