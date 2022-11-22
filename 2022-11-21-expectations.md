@@ -55,17 +55,19 @@ and its constant scrutiny.
 
 It may not be as satisfying  
 as the fulfillment of expectations,  
-but it can bring healing and new life  
+but there is healing and new life  
 in the freedom that it contains  
-if I can see it not as the final word in my story,  
-but simply as the letting go of an expectation  
-that had no fulfillment outside of my imagination.  
+when I can see it as a release of   
+something with no life outside of my imagination,  
+and not as the final word in my story.  
 
-And now I can take a deep breath,  
-pause, rest, and reset.  
+And then I take a deep breath,  
+pause, rest, reflect, and reset.  
 Update my internal understanding  
-with a model that more closely matches reality,  
-and begin again to fly.  
+to more closely match reality.  
+
+And begin again to soar  
+as high as I dare to fly.  
 
 Some days life just says,  
 "Here, have some humility."  
