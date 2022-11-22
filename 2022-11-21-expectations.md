@@ -8,7 +8,7 @@ How do handle
 your own expectations?  
 
 In some ways,  
-expectations and anticipation  
+expectation and anticipation  
 bring great joy and fun  
 into the day after day under the sun.  
 
@@ -16,24 +16,26 @@ And also, as often happens
 when spirit takes form,  
 reality is different from  
 the imagined ideal  
-and we often feel disappointed.  
+and we feel disappointment.  
 
 The expectations of others on us  
-can at times be simply too much to bear.  
+can at times be too much to bear.  
 They can weigh us down  
 and overwhelm us with despair.  
 
 The world expects so much  
-if you want to be accepted into society.  
+if you want to be accepted in society.  
 And God help you if you refuse  
 or challenge its standards.  
-It's often not taken politely.  
-Somtimes even violently.  
+It's not typically taken politely.  
+Somtimes even violently.    
+Get ready to be alone,  
+cast out, or disowned.  
 
 And what of the expectations  
 that we place on ourselves?  
-Or that we receive from 
-those we define us?  
+Or that we internalize  
+from those we defined us?  
 
 The people, situations, and environments  
 that deeply shape our sense of self  
@@ -46,14 +48,14 @@ Can we allow and accept disappiontment?
 Can I allow and accept disappointment?  
 
 In a way, disappointment -  
-as painful as it may -  
+as painful as it may be -  
 is the freedom I long for.  
 A release from expectation  
 and its constant scrutiny.  
 
 It may not be as satisfying  
 as the fulfillment of expectations,  
-but it can still bring a kind of healing and new life  
+but it can bring healing and new life  
 in the freedom that it contains  
 if I can see it not as the final word in my story,  
 but simply as the letting go of an expectation  
